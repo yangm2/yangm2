@@ -14,3 +14,6 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+Find me on [LinkedIn](http://linkedin.com/in/mike-yang-43a2664)
+and [hire me](https://drive.google.com/file/d/1Fqw2pRyW4Xi1vlpM-oyWwsKM1-9V26yd/view?usp=sharing).
